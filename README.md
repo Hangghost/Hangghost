@@ -1,4 +1,4 @@
-##🚀 AI Engineer | 🛢️ Data Engineer | 🧠 Neuroscientist | ☁️ Cloud Enthusiast
+🚀 AI Engineer | 🛢️ Data Engineer | 🧠 Neuroscientist | ☁️ Cloud Enthusiast
 
 🔭 Exploring the fascinating intersection of Artificial Intelligence, Neuroscience, and Cloud Computing.
 
